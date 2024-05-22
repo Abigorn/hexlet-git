@@ -1,1 +1,0 @@
-Novikov Artem
